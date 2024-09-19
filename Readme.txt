@@ -1,0 +1,1 @@
+Jerry sedang Turu di kamar hantu
